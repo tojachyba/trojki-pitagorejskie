@@ -1,0 +1,1 @@
+# trojki-pitagorejskie
